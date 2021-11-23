@@ -1,4 +1,5 @@
-![coding-freak](https://user-images.githubusercontent.com/62602902/143041202-40ac6d8d-2688-4f5f-a0ac-8aeedb24a596.gif)
+![programmer](https://user-images.githubusercontent.com/62602902/143041708-5de7f969-cdc4-42ae-ba50-36962bcbbb41.gif)
+
 
 
 ### Hi there 👋, I'm Md Zuhair
